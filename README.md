@@ -1,2 +1,1 @@
-# lekkala-sreelekha
 sreelekha
